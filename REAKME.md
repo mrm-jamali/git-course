@@ -1,2 +1,0 @@
-# webprog.io
-# loremmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
